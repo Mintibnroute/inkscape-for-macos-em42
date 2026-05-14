@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Inkscape for macOS extension with Inkscape for macOS premium Extension: UI themes & plugin support. Featuring UI themes and plugin support, it's the best choice
 
 
 
